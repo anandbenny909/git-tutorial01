@@ -11,4 +11,4 @@
 ## Instructions
   - Boil Cassava
   - Crush the chilli, spices, onion into a hot paste
-  - Eat as you will die tommorrow!
+  - Eat as you will die tommorrow! (you might if you don't have tolerance)
